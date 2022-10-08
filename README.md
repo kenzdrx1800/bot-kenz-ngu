@@ -1,0 +1,2 @@
+# bot-kenz-ngu
+Lồn 
